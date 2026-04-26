@@ -1,2 +1,2 @@
 # Ajonejack
-Hello there all guy are going to check it my wedsite 
+Hello there check my portfolio wedsite and rate the wedsite 
